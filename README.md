@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @YasmimMorelli
 - 👀 I’m interested in ("aprender")
 - 🌱 I’m currently learning (A programar)
-- 💞️ I’m looking to collaborate on em me ajudar
+- 💞️ I’m looking to collaborate on em: me ajudar
 - 📫 How to reach me (me chamando no whatsapp)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: sou muito alegre
